@@ -1,5 +1,11 @@
-- heya, i'm atticus. i'm an australian male (he/him).
-- english 'major', writer, artist, herbalist, and avid gamer.
-- trying to learn how to code with memory loss :')
-- fan of the stanley parable, osu and fnaf.
-- live laugh love.
+- girls love me, fish fear me, and harvard wants what i have.
+- my brain runs on windows vista and has a single megabyte of memory
+- and my favourite passtime is chewing on blank cds
+- he/him. male. college student. australian.
+- coder. artist. scholar. writer. gamer. failed math half my life. ultimate guy ever.
+- autistic + adhd + i was born 3 days late + generally abnormal + just a guy
+- hobbies include staring at screen, discs, videoed game, walking, social interactions,
+- make joke, drink drinks, learn language, eat mc donald, panic attack, and being normal.
+- life achivements include; top of my school in english, being the designated 'it guy' in middle school,
+- having a 33% grade in math, touched an electric fence 6 times in a row out of my own stupidity,
+- having the weirdest dreams ever, basically failed 7th grade, 
