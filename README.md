@@ -4,7 +4,7 @@
 - and my favourite passtime is chewing on cd's.
 - my name is jay. self proclaimed coolest male on earth.
 - he/him. male. college student. australian.
-- coder. artist. scholar. writer. gamer. failed math half my life. ultimate guy ever.
+- coder. artist. scholar. writer. gamer. failed math in junior high. ultimate guy ever.
 - autistic + adhd + i was born 3 days late + generally abnormal + just a guy
 - ---
 - hobbies include staring at screen, discs, videoed game, walking, social interactions,
